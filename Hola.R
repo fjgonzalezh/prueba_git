@@ -1,1 +1,1 @@
-"buenos días "
+"buenos días qué tal"
